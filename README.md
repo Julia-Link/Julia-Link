@@ -1,4 +1,7 @@
-eu gosto de comer terra
+eu gosto de comer terra!
+
+
+# 🏳️‍⚧️🏳️‍⚧️🏳️‍⚧️🏳️‍⚧️🏳️‍⚧️🏳️‍⚧️🏳️‍⚧️
 
 
 <a href="https://www.credly.com/badges/c24c75e2-4e80-48c5-86e0-f2f5f0ac9181/public_url" target="_blank">
